@@ -1,4 +1,4 @@
-# Hey, I'm Rico 👋
+# Hey There!
 
 Just a random dude who likes building things.
 
